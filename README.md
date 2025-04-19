@@ -1,7 +1,5 @@
 ![50e4b8fd39b430222d8f7062f0cd2bc2](https://github.com/user-attachments/assets/44b4a281-1739-4e2a-b5ac-acb5138857a2)
 
-![b3d9613034906e3a4f83615ba6cfcdf2](https://github.com/user-attachments/assets/92eb3b5b-8b54-4e3b-b13f-5ce3b2f3473b)
-
 ![fourth-doctor-doctor-who](https://github.com/user-attachments/assets/a6051ada-23b1-492f-99b8-d2a5c61207e0)
 
 ![d7c3485f66c4d71862dfe78aca3256a1](https://github.com/user-attachments/assets/2f6714ed-f70a-4022-ba41-0b50aeb907a0)
