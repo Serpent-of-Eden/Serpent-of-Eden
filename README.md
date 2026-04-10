@@ -11,7 +11,7 @@
             
           Elementary Physics 
             Oingo Boingo  
-        0:58 ─〇───── 4:01
+         0:58 ─〇───── 4:01
         ⇄   ◃◃   ⅠⅠ   ▹▹   ↻
 
 
