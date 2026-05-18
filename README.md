@@ -3,7 +3,7 @@
                【BYI】
                
     ⤷ i may be offtab, i prefer w2i    
-    ⤷ i have ocd, but i dont bite ^^
+    ⤷ i have ocd, so iwc pls! ^^
     ⤷ sorry if i am awkward (｡•́   ̫ •̀｡)
     ⤷ c+h only if i am alone !
 
